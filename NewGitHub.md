@@ -1,0 +1,4 @@
+- 👋 Hi, I’m DestructionJPG
+- 👀 Python Programming, Reverse Engineering C# Programs
+- 🌱 Learning Java / C++
+- 📫 https://t.me/d3str6c10n / https://www.youtube.com/channel/UCyLR4Dz8W9UFYZP_myK67Qw / https://discord.link/200IQ
